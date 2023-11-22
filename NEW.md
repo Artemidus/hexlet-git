@@ -1,1 +1,0 @@
-Artemidus is a superstar
